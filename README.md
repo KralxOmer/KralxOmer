@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @KralxOmer
-- 🌱 I’m currently learning ..
-- 📫  bana nasıl ulaşırsınız. Dc : TostYiyenKediᶜᵗ#0001
+- 📫 İletişim Bilgilerim
+- 📫 Discord : Lexy &#1504
 
 <!---
 KralxOmer/KralxOmer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
