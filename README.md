@@ -1,3 +1,3 @@
-- 📫 Follow Me
 - 📫 Discord : Lexy ⛤#1504
-- 📫 Instagram : lexycim
+- 📫 Discord Adresim : https://discord.com/invite/youchecked
+- 📫 Instagram : https://www.instagram.com/lexycim/
